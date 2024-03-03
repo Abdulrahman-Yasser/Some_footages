@@ -2,7 +2,6 @@
 
 1 - (B-roll: TITLE: GENOCIDE AGAINST CHILDREN IN GAZA.[Include footage of all attacks on Gaza children beginning on the 7th.] 
 
-1 - Mar : 
 
 - Mother crying with her children dead bodies, "My heart light, those green eyes, the boy is always tiring me" (https://t.me/QudsN/377652) "The life is gone, all of them are gone, All the time i call him, Did you go Abu-alward (Father of flowers) [speaking with her child], Did you go susa [talking to her baby girl]?"(https://t.me/QudsN/377562)
 
@@ -73,7 +72,6 @@ Twitter posts
 
 - Israeli characters with racist speeches https://x.com/ShaykhSulaiman/status/1756762275585679418?s=20
 
-2 - Feb : 
 
 - A leg cutted from a body in civilians in Gaza. https://t.me/QudsN/376665 
 - Dead bodies 27 feb https://t.me/QudsN/376462
