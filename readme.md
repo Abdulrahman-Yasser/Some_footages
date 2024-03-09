@@ -140,4 +140,12 @@ B-roll (Include footage about Netanyahu equating the Palestinians to Amalek and 
 
 - Gaza is the city of evil [...] We will turn all the places where Hamas is organized and hiding into cities of ruins. I say to the residents of Gaza - get out of there now. We will act everywhere and with all our strength. https://www.ynetnews.com/article/skforn1za
 
+
+
+B-roll: Include footage of Ben-Gvir calling for the complete annihilation of Gaza.
 - 
+
+-  The only thing that should enter Gaza as long as Hamas doesn't release the hostages it holds is not a gram of humanitarian aid, but hundreds of tons of explosives from the Air Force. 
+
+-  We don't leave the city centers in Gaza, that is the first thing ... The second thing, I suggest, and I say this in the most explicit way ... occupy Gaza and stay there ... what can and should be done is voluntary migration plan. A plan of encouragement, that will allow them to leave ... If we decide to [to expel Palestinians from Gaza], we can do it. https://twitter.com/MiddleEastEye/status/1747967081541255628
+
