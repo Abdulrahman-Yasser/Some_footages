@@ -78,3 +78,66 @@ Twitter posts
 - Burned kid in Gaza https://t.me/QudsN/376691
 - building distruction https://t.me/QudsN/376701
 - 6 month kid less than 3 KG https://t.me/QudsN/376534
+
+- Mother and her child was snippered, in the last 20 sec, they successfully could get the child, but he was dying. We can see the child letrally dying https://x.com/afshinrattansi/status/1756689468939997635?s=20
+
+- Video from inside the hospital, Shows the distruction in the hospital https://x.com/jacksonhinklle/status/1765408855234585067?s=20
+
+- Dead child under the rubble https://x.com/jacksonhinklle/status/1763235634452316357?s=20
+
+- A father crying over his dead child https://x.com/KufiyyaPS/status/1766165855300211190?s=20
+
+- IDF soliders saying they've killed a civilian with 4 bullets https://x.com/Hamza_a96/status/1766230878160552078?s=20
+
+- IDF Soliders with women cloths https://x.com/ytirawi/status/1766016416371630284?s=20
+
+- Israel's military bombards Al Masri tower in Rafah, which shelters hundreds of displaced civilians, using two bombs. https://x.com/QudsNen/status/1766251381512355846?s=20
+
+
+- Footage uploaded by an Israeli soldier on his social media account shows himself on a tank, arbitrarily shooting at buildings and indiscriminately shelling structures inside Gaza. https://x.com/QudsNen/status/1766190819973775678?s=20
+
+- Aerial footage of northern Gaza shows entire residential blocks completely destroyed following months of Israeli airstrikes and Israeli forces' invasion. https://x.com/QudsNen/status/1766155166049276319?s=20
+
+- "Today he is a baby, tomorrow he is a fighter." - Rabbi Eliyahu Mali, head of the settlers' yeshiva school in occupied Jaffa, incited his students serving in the Israeli occupation forces to kill everyone in Gaza, including babies.
+
+- An Israeli soldier executed an elderly, defenseless man inside a house west of Gaza City, months ago. https://x.com/SuppressedNws/status/1766207457636888850?s=20
+
+
+- It (the dog) ate him, the terrorist is gone. What a (nice) sunset https://x.com/Dima_Khatib/status/1766194638795239919?s=20
+
+- Destruction of a full neighborhood in Gaza called Barcelona https://x.com/abierkhatib/status/1727626484553015527?s=20
+
+- A child under the rubble after 9 days https://x.com/Hassam_SHER_BSO/status/1763272443043471850?s=20
+
+- Video of the doctor women going under the bullets and saving a civilian in fron of Nasser hospital door https://x.com/CensoredMen/status/1756774815451460056?s=20
+
+
+- A child with a cutten hand, saying "My hand hurts me, i don't take medicine". The child doesn't know that her hand is cutten off, her parents trying to convince her that her hand is just wrapped under the Gauze. Her father doesn't know what to told her. https://x.com/CensoredMen/status/1751844307307299219?s=20
+
+- Palestinian girl in Gaza meets her father after he was detained by Israel for 30 days. "I hope the war ends while we are alive." https://x.com/CensoredMen/status/1751825649998626971?s=20
+
+- A video showing a child when she just arrived the hospitals, her father knew her and sayd "we were bombared at 21.30 4 floors over our heads. after 3 days, we found her little brother and her older brother dead beside her. She couldn't talk when we got here, All of the work was literally with bare hands, carring all of the houses rubble only with hands."
+
+- A video of a man (witness and victim of stealing) saying that "IDF solider didn't return anything of my money or mobiles, they have kidnapped me and i didn't know who went to rafah from my childere, I was beaten, humulated, and beaten again, I was thrown over a tank, my head hurted, bleaded and made a problem in my back because of the throw, I told him there is a blood on my head, he hit me on my eyes. If you ever said i am hearten, you got beaten again. 3 days with no food, water, and bathroom, just beating and beating. In the 4th day, they handled me cheese backet. Sleeping in the cold with a thick cloth. They asked us about 7 of Oct, who you know, where were you. We were beaten even while we were handled back to Rafah."
+
+- A rocket killed a child, he was sitting to get network to open Internet, because that's the only place in Gaza that has network. and he died https://gaza23.com/posts/OTRiamRIcnNYWmY0K0R5cFowTkVLQT09
+
+- Dead man on the ground in al-Amal hospital, no one can save get his body because of the sniper. https://gaza23.com/posts/dUdDV0VJSThXeVFhbFVWdmdCSUZwdz09
+
+- Dead child body got out of the rubble https://gaza23.com/posts/T0s0VWVYU2ZsSklRSG5iWk9Vc2sxQT09
+
+
+
+
+B-roll (Include footage about Netanyahu equating the Palestinians to Amalek and calling for their utter and complete destruction.)
+- 
+
+- I didn't found a quote of (complete destruction)
+
+- You must remember what Amalek has done to you, says our Holy Bible. And we do remember. https://www.youtube.com/watch?v=pMVs7akyMh0 
+
+- This is the war between the sons of light and the sons of darkness. We will not let up on our mission until the light overcomes the darkness — the good will defeat the extreme evil that threatens us and the entire world.  https://zionism.observer/storage/documentation/126/screenshot//cp5pUfDAUUez4JSQJrqxzmjHSsYPPLzkojsXK9zv.png
+
+- Gaza is the city of evil [...] We will turn all the places where Hamas is organized and hiding into cities of ruins. I say to the residents of Gaza - get out of there now. We will act everywhere and with all our strength. https://www.ynetnews.com/article/skforn1za
+
+- 
