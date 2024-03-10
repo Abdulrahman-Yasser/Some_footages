@@ -129,8 +129,15 @@ Twitter posts
 
 
 
+
+
+
+
 B-roll (Include footage about Netanyahu equating the Palestinians to Amalek and calling for their utter and complete destruction.)
 - 
+
+-  Our problem is finding countries that are willing to absorb Gazans, and we are working on it. Netanyahu, Benjamin
+Israeli Prime Minister
 
 - I didn't found a quote of (complete destruction)
 
@@ -142,6 +149,13 @@ B-roll (Include footage about Netanyahu equating the Palestinians to Amalek and 
 
 
 
+
+
+
+
+
+
+
 B-roll: Include footage of Ben-Gvir calling for the complete annihilation of Gaza.
 - 
 
@@ -149,3 +163,135 @@ B-roll: Include footage of Ben-Gvir calling for the complete annihilation of Gaz
 
 -  We don't leave the city centers in Gaza, that is the first thing ... The second thing, I suggest, and I say this in the most explicit way ... occupy Gaza and stay there ... what can and should be done is voluntary migration plan. A plan of encouragement, that will allow them to leave ... If we decide to [to expel Palestinians from Gaza], we can do it. https://twitter.com/MiddleEastEye/status/1747967081541255628
 
+
+- The only humane solution for Gaza is the mass deportation of its inhabitants. https://zionism.observer/storage/documentation/166/screenshot//zJGGo7QIPxkyIWPkIanYhcpqJZrogzEawqcmlEci.png
+
+
+-  I do deny a Palestinian state. Always! Ben-Gvir, Itamar
+
+
+
+
+
+
+
+B-roll: Include footage of other politicians, diplomats, and ambassadors who’ve called for the complete destruction of Gaza.)
+-
+-  The one who comes to kill you here, in the broad sense, is not the person 16-30, the one who points his weapon at you. But also the next generation, and those who give birth to the next generation. In reality there is no difference. Mali, Eliyahu
+Rabbi, head of religious school Shirat Moshe
+
+
+- Today's terrorists are the children of previous wars, whom we let live. And in reality, it is the women who create the terrorists. Mali, Eliyahu
+Rabbi, head of religious school Shirat Moshe
+
+
+-  You will die, your children will die, your grandchildren will die - there won't be a Palestinian state, there won't be. Milwidsky, Hanoch
+Member of the Knesset (Likud)
+
+
+-  I am personally proud of the ruins of Gaza, and that every baby, even 80 years from now, will tell their grandchildren what the Jews did. Golan, May
+Member of the Knesset (Likud)
+
+-  Yes, we set fire to houses [in Gaza]. As much as possible. And we are proud of it. Wald, Yehuda
+Director of Religious Zionism Party (Religious Zionism Party)
+
+- They will move. The Arabs will move. ... We don't give them food, we don't give the Arabs anything. They will have to leave. Weiss, Daniella
+Fomer Israeli Mayor, Settler activist
+
+
+-  Israeli soldiers waging war in Gaza will remain as settlers and rebuild settlements, we have come back to inherit the land. Smotrich, Bezalel Yoel
+Finance Minister (National Religious Party–Religious Zionism)
+
+
+- We cut the supply of energy, water and diesel to the Strip ... But it’s not enough. In order to make the siege effective, we have to prevent others from giving assistance to Gaza ... The people should be told that they have two choices: to stay and to starve, or to leave. If Egypt and other countries prefer that these people will perish in Gaza, this is their choice. Eiland, Giora
+Reservist Major General
+
+-  Nakba to the enemy now! This day is our Pearl Harbor. We will still learn the lessons. Right now, one goal: Nakba! A Nakba that will overshadow the Nakba of 48. A Nakba in Gaza and a Nakba for anyone who dares to join! Kallner, Ariel
+Member of the Knesset
+
+-  This attack is not enough, there should be more, there should be no limits to the response, I said it a million times, until we see hundreds of thousands fleeing Gaza, we, the IDF has not achieved its mission, this is a phase that should happen, I am saying this cause these are instructions that were said to the IDF [...] I also do not want the IDF to get inside Gaza before crushing everything, I’d rather the falling of fifty buildings than one more casualty to our forces. Kisch, Yoav
+Minister of Education
+
+- Creating a severe humanitarian crisis in Gaza is a necessary means to achieve the goal. Gaza will become a place where no human being can exist. Eiland, Giora
+Reservist Major General
+
+-  It is not Hamas that should be eliminated. Gaza should be razed and Israel’s rule should be restored to the place. This is our country. Feiglin, Moshe
+Former MK (Likud)
+
+-  All the civilian population in gaza is ordered to leave immediately. We will win. They will not receive a drop of water or a single battery until they leave the world. Katz, Israel
+Minister of Foreign Affairs, MK (Likud)
+
+-  All the civilian population in gaza is ordered to leave immediately. We will win. They will not receive a drop of water or a single battery until they leave the world. Katz, Israel
+Minister of Foreign Affairs, MK (Likud)
+
+- If the Prime Minister Netanyahu and his ministers cared about the State of Israel, there would already be 150,000 dead in the Gaza Strip, and not even a single building would be standing in the Strip. King, Aryeh Yitzhak
+Deputy Mayor of Jerusalem
+
+- The north of the Gaza Strip, more beautiful than ever. Everything is blown up and flattened, simply a pleasure for the eyes ... We must talk about the day after. In my mind, we will hand over lots to all those who fought for Gaza over the years and to those evicted from Gush Katif” [a former Israeli settlement]. Eliyahu, Amichay
+Minister of Heritage
+
+- Erase Gaza from the face of the earth. Let the Gazan monsters rush to the southern border and flee into Egypt, or die. And let them die badly. Gaza should be wiped off the map. Distel-Atbaryan, Galit
+Member of the Knesset
+
+-  Let us distribute Gazans all over the world, there are 2.5 million people. Each country takes 25,000. That's human and needs to be done. Ben-Barak, Ram
+MK and former Deputy Director of Mossad
+
+- We are now rolling out the Gaza Nakba [...] There is no way to wage a war – as the IDF seeks to do in Gaza – with masses between the tanks and the soldiers [...] Gaza Nakba 2023. That’s how it’ll end. Dichter, Avi
+Minister of Agriculture and Rural Development
+
+
+-  1. Annexing Area C is necessary, because if not, everything that happened to us in the Gaza envelope will happen to us in Kfar Saba, Herzliya, Ra'anana, and more. It's just a matter of time. 
+    2. Annexing the northern Strip of Gaza is necessary, because if not, the residents of the Gaza envelope are again in existential danger. 
+    3. We lost our reading of the security map since we called settlement 'settlement', since we called the pioneers 'hilltop youth'. It's important to note that the value of land is not only biblical but also grants us geopolitical depth and a grip on the territory which allows us to ensure our right to exist. We must return to the roots; the Maccabees, of blessed memory.
+    
+    Yosian, Eliyau
+    IDF Military Intelligence Unit 8200, awarded the Israel Defence Prize
+
+-  After we turn Khan Younis into a soccer field […] we need to take advantage of the destruction to tell the countries that each of them should take a quota, it can be 20K or 50K. We need all 2 million to leave. That's the solution for Gaza. Shaked, Ayelet
+Former Minister of Interior, Minister of Justice (Jewish Home, New Right)
+
+-  The entire Gaza Strip should be emptied and leveled flat, just like in Auschwitz. Let it become a museum, showcasing the capabilities of the State of Israel and dissuading anyone from living in the Gaza Strip. This is what must be done to give them a visual representation. Azulai, David
+Director of the Metula Council
+
+- We'd like to see, and we've talked about this in government meetings, by the way. There aren't any countries that want to take them [Gazans], even if we pay a lot of money. We should encourage voluntary migration, and we should compel them until they say they want it. The war does that. Karhi, Shlomo
+Minister of Communications
+
+https://x.com/QudsNen/status/1766724385392488715?s=20
+-  I don't care about Gaza. I literally don't care at all. They can go out and swim in the sea. I want to see dead bodies of terrorists around Gaza. Golan, May
+Member of the Knesset (Likud)
+
+
+
+
+B-roll: Include any footage of military personnel who have called for the complete destruction of Gaza. Be very specific as to what you include because not everything will constitute to genocide.
+- 
+
+-  What does it mean to harm all the population? There are no innocents! That's exactly it. You're saying now 'population'! There is no population! There are two and a half million terrorist- therefore, warning before bombing is meaningless. Warning has to be for innocents only and since there's no innocent, so, there's no problem. When I said 'they are all terrorists [Interviewer: "What does it mean? Kill everybody?"] This is the perception, that there is something defined in times of war called 'The hour of grace.' Yosian, Eliyau
+IDF Military Intelligence Unit 8200, awarded the Israel Defence Prize
+
+-  On the first night, we should have taken down 50,000 Gazans, as a blood revenge. Cabinet discussions later, humanitarian later, prisoners and missing persons later. The first check - blood revenge. This is what Ben Gurion knew. Yosian, Eliyau
+IDF Military Intelligence Unit 8200, awarded the Israel Defence Prize
+
+-  Gaza will eventually turn into a city of tents. There will be no buildings. Hagari, Daniel
+
+-  The emphasis is on damage and not on accuracy. Hagari, Daniel
+IDF Spokesperson
+
+-  I have released all restraints. Gallant, Yoav
+Israeli Defense Minister
+
+-  Hamas is not the enemy, but Gaza is the enemy. [...] It is not important who you warn, or who evacuates a neighborhood. This is what is called flattening the area, leveling the ground. You ask me what I would do? The answer is simply leveling the ground, and to kill the largest number possible. Because the woman is an enemy, the baby is an enemy, and the first grader is an enemy. The Hamas militant is an enemy and the pregnant woman is an enemy. We see it with our own eyes. Yossian, Eliyahu
+Israeli TV analyst, Former military officer
+
+
+ 
+- A 5-year-old boy says Israeli soldiers shot and killed his pregnant mother in cold blood during a recent raid in Gaza. His father was asleep, they killed him too after killing the mother.
+They were killed in front of me. https://x.com/QudsNen/status/1766724385392488715?s=20
+His aunt said "They went out barefoot, with the clothes they were wearring, afraid because they saw people got shot in cold blood around them, Adam said i saw my father writhing and his soul leaving his body and his leg squirming, and his head does like that "
+
+
+
+-  An IDF solider live video, 'Atta Ibrahim Al-Muqaid, a 73 year old elderly man who was both mute and deaf. Soldier admitted he killed him https://x.com/Timesofgaza/status/1766652051461697752?s=20
+
+
+- 
