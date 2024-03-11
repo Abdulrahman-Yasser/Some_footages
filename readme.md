@@ -325,6 +325,18 @@ B-roll: Include footage of Israeli politicians, the army, and its people referri
 B-roll: Include any and all footage of the IDF wreaking havoc on Gaza and its people before the 7th of October 2023. Go as far back as you can.
 -
 
+- First resource i can suggest is this channel : https://www.youtube.com/@btselem <br>
+Go in, watch any video, and that's your resource
+
+- The IOF have arrested 22 year-old Palestinian activist Ahed Tamimi for "inciting terrorism",during overnight raids in the occupied West Bank. In this video filmed last year Ahed speaks to 
+@DenaTakruri about what life is like under occupation and being targeted by Israelis. -AJ+ https://x.com/randA33333/status/1721991218303737893?s=20
+
+
+- Palestinian journalist Hana Hammad continues work after being injured by Israeli forces in Jerusalem https://x.com/sembayu0/status/1721278082911281526?s=20
+
+
+- 11 year-old girl hit in the face with a stun grenade by an israhelli police + violent beating for other girl, resulting in broken jaw and wounds for the 11YO. The muslims were celebrating a holiday that day. BEFORE OCTOBER 7TH https://x.com/antizionist653/status/1722745411025215843?s=20
+
 
 B-roll: Include any evidence to support the fact that Gazan leaders have been imprisoned, maimed, or killed.
 -
