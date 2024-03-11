@@ -147,7 +147,7 @@ Israeli Prime Minister
 
 - Gaza is the city of evil [...] We will turn all the places where Hamas is organized and hiding into cities of ruins. I say to the residents of Gaza - get out of there now. We will act everywhere and with all our strength. https://www.ynetnews.com/article/skforn1za
 
-
+- Same (terror-convicted) Israeli Minister dancing again with settlers at the "Hate Wedding" as they pretend to stab Palestinians. He called those settlers "salt of the earth" & hired the groom as his chief of staff, Chanamel Dorfman! https://x.com/muhammadshehad2/status/1723739758617096223?s=20
 
 
 
@@ -169,7 +169,8 @@ B-roll: Include footage of Ben-Gvir calling for the complete annihilation of Gaz
 
 -  I do deny a Palestinian state. Always! Ben-Gvir, Itamar
 
-
+- Here's Israel's (terror-convicted) Minister Ben Gvir partying with settlers as they burned & stabbed the pic of a burned Palestinian infant, Ali Dawabsha! Ben Gvir was the lawyer representing the settler that burned that same infant, Amiram Ben-Uliel!
+Before 7th Oct, https://x.com/tastefullysaucy/status/1723789707157422164?s=20
 
 
 
@@ -294,4 +295,150 @@ His aunt said "They went out barefoot, with the clothes they were wearring, afra
 -  An IDF solider live video, 'Atta Ibrahim Al-Muqaid, a 73 year old elderly man who was both mute and deaf. Soldier admitted he killed him https://x.com/Timesofgaza/status/1766652051461697752?s=20
 
 
+
+B-roll: Include footage of Israelis who have called for a genocide. Be specific.
 - 
+
+
+
+B-roll: Footage that supports claims of Netanyahu and other Israeli folks making such claims will be included here. Use quotes/footage from way back.
+-
+
+
+
+B-roll: Add any supporting evidence as needed. Also if there are any symbols that Israelis force on Palestinians, please feel free to use that as well. I’ll change the script accordingly.
+-
+
+
+B-roll: Include any and all footage of the various apartheid laws and how they’re enforced upon the people of Palestine. Include footage from Gaza and the West Bank too.
+- 
+
+
+
+B-roll: Include footage of Israeli politicians, the army, and its people referring to Palestinians as animals, or equating them to vermin. Use other video references that will support the fact they’ve used dehumanising vernacular.
+- 
+
+- This is a war between the children of light and the children of darkness, between humanity and low of jungle. (prime minister of Israel)
+
+B-roll: Include any and all footage of the IDF wreaking havoc on Gaza and its people before the 7th of October 2023. Go as far back as you can.
+-
+
+
+B-roll: Include any evidence to support the fact that Gazan leaders have been imprisoned, maimed, or killed.
+-
+
+
+B-roll: Include footage to support the claim that Gaza has in fact been besieged and its resources have been controlled by Israel.
+-
+
+
+B-roll: Include footage of some of the worst atrocities that have been committed by Israel here.
+-
+
+
+
+B-roll: Include footage of Israel’s leaders denying that they’ve done anything wrong in Gaza since the 7th of October, 2023.
+-
+
+
+
+B-roll: Include footage of UN leaders/rapporteurs claiming that Israel is in fact committing genocide in Gaza.
+-
+
+- Incredible reporting from @clarissaward, showing the reality inside of Gaza. Worth a watch if you get a moment. There are also journalists inside Gaza that have been continuously reporting on what’s happening there, many have died in the process.  https://x.com/OmarJimenez/status/1735300676635271366?s=20
+
+- A forigen docotr (European or American) served at Al-shifa hospital talking about that there was no tunnel in the hospital. He said "they was bombing hospitals, ambulances, and our stuff since the first time i worked in Gaza in 2006" https://x.com/DerbyChrisW/status/1724453812079890610?s=20
+
+
+- UN and UNRWA members took hostages https://x.com/DrEliDavid/status/1733098148053016922?s=20
+
+random 
+- 
+
+
+- A Palestinian father is forced to carry his son himself into Jenin Government Hospital because the Israeli occupation army is blocking the movement of ambulances during the ongoing Israeli invasion of the city. https://x.com/QudsNen/status/1734517483220992370?s=20
+
+- Once a man arrived the hospital with his children's dead bodies https://x.com/S_Aljafarawi/status/1733901140922646717?s=20
+
+- 16 of our brave soldiers pursued a little girl... https://x.com/IsraelDefenseF/status/1733442366759956825?s=20
+
+- A crying woemn, saying "Please forgive me baby, I've been very tired to get him, I've took 580 shot in the hospital for him." https://x.com/NoonPost/status/1732823930379841624?s=20
+
+- A 24 years old girl post says "Hi, my name is yafa .. The most that scares me is mentioning my dead in occupation targetting as a number among the numbers that increase every day and which are diffcult to count, so they says :"martyrdom of a young woman and others in a Zionist targeting of a residential area." I'm not a number, I am 24 years old to become what iam today, I've many friends, memory, and lots of pain."
+
+- Dead civilians including a women beside trash https://x.com/HossamShabat/status/1732825842059735531?s=20
+
+- How Palesinian women are treated in Israel prison https://x.com/Ali_bgreat/status/1731437826124783730?s=20
+
+- A video from Deir al-balah for people waiting for food<br> People have testified going up to 3 days without food. This footage shows hundreds in line for food in the south of Gaza, while no supplies reach the northern part of Gaza and its remaining 700.000 Palestinians inhabitants. https://x.com/RamAbdu/status/1732684596142059680?s=20
+
+- Shooting a 16 years old girl in her leg in West Bank checkpoint because she wearing green https://x.com/trhxianl/status/1721823880967258550?s=20
+
+- Live video of Bombaring Al-Andalus hospital https://x.com/salama1977/status/1722669047215477242?s=20
+
+- Live video of bombing Al-shifa hospital https://x.com/S_Aljafarawi/status/1722918885014307286?s=20
+
+- A kid named Youssef (Curly hair, white, and beautiful) AI character saying his story https://x.com/ajmubasher/status/1723769879872889317?s=20
+
+- The Paramedic went to do her job, found her house the one was bombed and all of her family in the house died she said "Please save even one of them, in the name of god just one of them, please only one, please only one." https://x.com/omarebrahimm1/status/1723828875237482583?s=20 
+
+- Debonking the steal of origins of Palestinians https://x.com/louay_fawzy/status/1724262851026600159?s=20
+
+- A forigen docotr (European or American) served at Al-shifa hospital talking about that there was no tunnel in the hospital. He said "they was bombing hospitals, ambulances, and our stuff since the first time i worked in Gaza in 2006" https://x.com/DerbyChrisW/status/1724453812079890610?s=20
+
+
+- Live from hospital, A doctor received her children after bombing their house in Rafah https://x.com/SuppressedNws/status/1725186846454321434?s=20
+
+- Live from the street "Rimal neighborhood", dead civilians on the street https://x.com/jacksonhinklle/status/1725260501922595035?s=20
+
+- Live from hospital, a doctor trying to help an injured kid https://x.com/HalaHanina/status/1725326153966059996?s=20
+
+- Live from street, killed during evacuations holding a white flag in Gaza https://x.com/Lowkey0nline/status/1725509200913014838?s=20
+
+- Ayat Khaddura, 27 years old, she has just been killed, and this is one of her last videos, she was a digital content and podcast presenter - North Gaza. https://x.com/SuppressedNws/status/1726712221718479102?s=20
+
+- A post include many dead children pictures in Gaza https://x.com/louay_fawzy/status/1726773819547767109?s=20
+
+- Here's Israel's (terror-convicted) Minister Ben Gvir partying with settlers as they burned & stabbed the pic of a burned Palestinian infant, Ali Dawabsha! Ben Gvir was the lawyer representing the settler that burned that same infant, Amiram Ben-Uliel!
+Before 7th Oct, https://x.com/tastefullysaucy/status/1723789707157422164?s=20
+
+
+- Live from hospital, Martyrs and injuries as #Israeli occupation bombed residential apartment in Hamad neighborhood west of Khan Younis, #Gaza. https://x.com/QudsNen/status/1727036146260046237?s=20
+
+- Live bombing hospital, Alshifa hospital yard was bombed by a drone plane ReaperMQ.9 carrying Rocket R9X which doesn't explode but carries blades that cut off limbs and organs immediately (As the horrific video you saw and cut the limb of that poor Palestinian) https://x.com/ahmedatta0/status/1722814769701228915?s=20<br>
+ https://x.com/ahmedatta0/status/1722815016762548409?s=20
+
+ - Live from bombed house, getting out bodies of dead children, women, and civilians https://x.com/swilkinsonbc/status/1726586631342502203?s=20
+
+ - Red Crescent ambulance is targeted by an israeli missile while it was transferring bomb-injured victims in Gaza to hospital https://x.com/swilkinsonbc/status/1727676381322973275?s=20
+
+ - Live from Al-Andalus hospital, shows dead bodies of many civilians https://x.com/qudsn/status/1728015798369718559?s=20.
+
+ - A story of a child who lost all of her family https://x.com/yaraeid_/status/1728214309564514473?s=20
+
+ - Story of prisoner in Isreael's prisons<br> Muhammad Nazzal, child just released from Israeli prison:
+"Elderlies died, and they were stomped and beaten. 
+They broke my arm and finger last week. They beat me again today. They did not provide any medical treatment.
+ The Red Cross only today treated my arm."
+If Hamas took about 300 hostages on October 7th, Israel has since taken 3200, most of them from the West Bank where Hamas does not exist as an organization. 
+Not to mention years ago. Old, young children,  were held in prisons in violation of all human rights laws in the world. https://x.com/Megatron_ron/status/1729491082306539600?s=20
+
+- Live, IDF killing a child in West Bank https://x.com/NewpressPs/status/1729826899977793781?s=20 <br> https://x.com/AhmedShaaban3m/status/1729861682732867595?s=20
+
+- Images of injured civilians once they've arrived a hospital. https://x.com/SuppressedNws/status/1730459494327468238?s=20
+
+- Burned inside his mom womb https://twitter.com/Abdulrahma36579/status/1731929789236232278
+
+- Two dead children Lama and Sama https://x.com/DmodosCutter/status/1730710923185197100?s=20
+
+- children reaction when bombed a neighborhood https://x.com/TadhgHickey/status/1732382853327933521?s=20
+
+- A child lost her arm and leg https://x.com/SuppressedNws/status/1732348080354447696?s=20
+
+
+Some IDF Tiktoks
+-
+
+- shitting in a bathrom and took his shit outside https://x.com/jamesdgreig/status/1730631587610423589?s=20
+
+- Israeli soldiers vandalize a gift shop in #Gaza after destroying the area and killing or expelling residents. https://x.com/MalakaShwaikh/status/1733262704540811504?s=20
