@@ -352,8 +352,86 @@ B-roll: Include footage of UN leaders/rapporteurs claiming that Israel is in fac
 
 - UN and UNRWA members took hostages https://x.com/DrEliDavid/status/1733098148053016922?s=20
 
+- - More than half a million people are on the brink of famine, Children are dying of hunger
+    - Lawlessness is rampant and is hindering aid distribution 
+    - More than 160 UN stuff have been killed 
+  - We know what to do to save lives, but we need the right conditions and guarantees. Here are six things that would make a difference 
+    - A ceasfire and full adherence to the rules of war.
+    - Additional entry points, supply routes and storage capacity in Gaza
+    - Better protection for aid convoys
+    - Free and safe movement of humanitarians supplies through checkpoints. 
+    - Road repair and clearance of unexploded ordnace.
+    - A bigger rule for commercial sector<br>
+    https://x.com/UNReliefChief/status/1765860384836071792?s=20
+
+- UNRAWA twitter account : Over 30,000 people have been killed from bombs & strikes in📍#Gaza
+Now, more are dying from consequences of the imposed siege - including a growing number of children dying of starvation & dehydration.
+The situation is appalling. Every minute, every hour, it is getting worse. https://x.com/UNRWA/status/1765667348021674410?s=20
+
+
+- UNICEF on Twitter : Ahmed was displaced from the north of Gaza.
+He lost his home, he’s doing all he can for his family to survive, and he has nowhere safe to go.
+There are 600,000 children in Rafah just like Ahmed, terrified of what’s next. From displacement and the threat of bombings to starvation and disease, so many are suffering the unimaginable, and now they are trapped in an overcrowded space with death getting closer.
+There is nowhere safe for children in Rafah to go, but there is a way out of their nightmare:
+Stop the war.
+Release the hostages.
+End the killing of children. https://x.com/UNICEF/status/1765838182505980307?s=20
+
+- Parts of human Rights articles : <br>
+  - "The court orders came in the context of the “genocide case” against the government of Israel at the ICJ, an independent court based in The Hague. In December, South Africa’s government filed the case, alleging that, in the wake of the Hamas-led October 7 attacks on Israeli civilians, Israel has committed atrocities against the Palestinian people that  violate the 1948 Genocide Convention.<br>
+  - Obligations to civilians are nonreciprocal. The fact that Hamas-led fighters committed war crimes against Israeli civilians – does not justify Israeli war crimes against Palestinian civilians.<br>
+  - International humanitarian law is clear here: an occupying power is responsible for the wellbeing of an occupied population
+"
+
+- human right watch article :
+  - Human Rights Watch has found that Israel is not complying with at least one of the binding provisional measures issued by the International Court of Justice in the genocide case brought by South Africa. States should use all forms of leverage, including targeted sanctions and an arms embargo, to press the Israeli government to comply with the binding order and to press the Israeli government and Palestinian armed groups to end unlawful attacks and other grave abuses. The lives of millions of civilians hang in the balance.
+  - Human Rights Watch has found that Israel is not complying with at least one of the binding provisional measures issued by the International Court of Justice in the genocide case brought by South Africa. States should use all forms of leverage, including targeted sanctions and an arms embargo, to press the Israeli government to comply with the binding order and to press the Israeli government and Palestinian armed groups to end unlawful attacks and other grave abuses. The lives of millions of civilians hang in the balance.
+
+- I am appalled by the tragic human toll of the conflict in Gaza - more than 30,000 people reportedly killed and over 70,000 injured. I reiterate my call for an immediate humanitarian ceasefire and the unconditional release of all hostages. https://twitter.com/antonioguterres/status/1763398908527493548
+
+- UN post : As human toll of conflict in Gaza reaches 30,000 people reportedly killed & more than 70,000 injured, 
+@antonioguterres. condemns Thursday incident in which more than 100 people were killed or injured while seeking life-saving humanitarian aid. https://twitter.com/un/status/1763279547880075649
+
+- @UNHumanRights chief @volker_turk calls for an end to the carnage in Gaza. https://www.ohchr.org/en/statements-and-speeches/2024/02/turk-calls-end-carnage-gaza
+  - ”About one in every 20 children, women and men in #Gaza are now dead or wounded. 
+  𝙏𝙝𝙞𝙨 𝙞𝙨 𝙘𝙖𝙧𝙣𝙖𝙜𝙚 .” 
+  - Since early October, over 100,000 people have been killed or wounded. Let me repeat that: about one in every 20 children, women, and men, are now dead or wounded. 
+  - At least 17,000 children are orphaned or separated from their families, while many more will carry the scars of physical and emotional trauma life-long. Today, the total number of people killed has exceeded 30,000. And tens of thousands of people are missing, many presumed buried under the rubble of their homes. 
+  - the unprecedented level of killing and maiming of civilians in Gaza, including UN staff and journalists; the catastrophic humanitarian crisis caused by restrictions on humanitarian aid; the displacement of at least three-quarters of the population, often multiple times; the massive destruction of hospitals and other civilian infrastructure – and in many cases, systematic demolition of entire neighbourhoods, rendering Gaza largely unliveable.
+  - Report A/HRC/55/28, which is before you, makes for very painful reading. Thousands of tonnes of munitions have been dropped by Israel on Gaza, including repeated use of explosive weapons with wide-area effects. These weapons send out a massive blast wave of high pressure that may rupture internal organs, as well as fragmentation projectiles, and heat so intense that it causes deep burns – and they have been used in densely populated residential neighbourhoods. In Egypt's El-Arish hospital, last November, I saw children whose flesh had been seared. I will never forget this. 
+  - Over the past five months of warfare, the Office has recorded many incidents that may amount to war crimes by Israeli forces, as well as indications that Israeli forces have engaged in indiscriminate or disproportionate targeting that violates international humanitarian law. 
+
+
+- At least ten children have reportedly died because of dehydration and malnutrition in Kamal Adwan Hospital in the Northern Gaza Strip in recent days. https://x.com/UNICEF/status/1764296731380920490?s=20
+
+- 
+
+- "There is absolutely no safe place in Rafah anymore... They are asked to move - the question is, where to move?"
+@UNLazzarini
+@UNGeneva
+: More than 100,000 people in📍#Gaza have been killed, injured or are missing.
+People are anxious & fear a large scale military operation. https://x.com/UNRWA/status/1757436897431900291?s=20
+
+- February registered a 50% reduction of humanitarian aid entering #Gaza compared to January.
+Aid was supposed to increase not decrease to address the huge needs of 2 million Palestinians in desperate living conditions. Among the obstacles: lack of political will, regular closing of the crossing points & lack of security due to military operations + collapse of civil order.
+Cease fire + lifting the siege to allow meaningful lifesaving aid + commercial supplies are long overdue. https://x.com/UNLazzarini/status/1762065832417325441?s=20
+
+- “We estimate that at least 90% of Gaza’s children under the age of five are affected by one or more infectious diseases.”
+@unicefchief
+ on the unimaginable suffering of children in Gaza - they need a permanent humanitarian ceasefire now.  https://x.com/UNICEF/status/1762221611153863008?s=20
+
+- Reports that at least 6 more children have died of dehydration & malnutrition in northern #Gaza are horrendous. Unimpeded access across the #GazaStrip is needed NOW. An immediate ceasefire continues to be a matter of life & death. https://x.com/UNRWA/status/1763110510289989962?s=20
+
 random 
 - 
+
+
+- 
+  - In the occupied West Bank, including East Jerusalem, Israeli forces’ use of airstrikes, attack helicopters, anti-tank missiles, shoulder-fired explosive projectiles and other weapons of war , has continued to increase, with lethal results, including killings of children. The report also notes a growing pattern of Israeli forces preventing paramedics from reaching Palestinians, including children, who have been injured in such operations. 
+
+  - From 1 January to 6 October, last year had already seen the highest levels of violence by Israeli military personnel and settlers against Palestinians in the occupied West Bank, including East Jerusalem, since United Nations records began in 2005. From 7 October last year to 23 February this year, at least 401 Palestinians in the West Bank were killed, 102 of them children. The vast majority of cases that the Office has monitored raise concerns of unlawful killings, including extra-judicial killings.
+
+- - "Israel" has dropped 65,000 tons of explosives and missiles on Gaza in three months,
 
 
 - A Palestinian father is forced to carry his son himself into Jenin Government Hospital because the Israeli occupation army is blocking the movement of ambulances during the ongoing Israeli invasion of the city. https://x.com/QudsNen/status/1734517483220992370?s=20
