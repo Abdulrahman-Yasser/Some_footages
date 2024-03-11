@@ -159,6 +159,8 @@ Israeli Prime Minister
 B-roll: Include footage of Ben-Gvir calling for the complete annihilation of Gaza.
 - 
 
+- The  right of living of jews in Judea and Samaria (referring to settlers in West Bank) has a priority over the Palestinians moving in West Bank (He said that to spread more weapons for the jews, and to protect his choice on giving all the jews weapons).
+
 -  The only thing that should enter Gaza as long as Hamas doesn't release the hostages it holds is not a gram of humanitarian aid, but hundreds of tons of explosives from the Air Force. 
 
 -  We don't leave the city centers in Gaza, that is the first thing ... The second thing, I suggest, and I say this in the most explicit way ... occupy Gaza and stay there ... what can and should be done is voluntary migration plan. A plan of encouragement, that will allow them to leave ... If we decide to [to expel Palestinians from Gaza], we can do it. https://twitter.com/MiddleEastEye/status/1747967081541255628
@@ -345,6 +347,12 @@ B-roll: Include footage of Israel’s leaders denying that they’ve done anythi
 B-roll: Include footage of UN leaders/rapporteurs claiming that Israel is in fact committing genocide in Gaza.
 -
 
+- "More than half the requests by @UN to bring food, clean water & medical aid to the north have been rejected by Israeli authorities"🚨90% of population has high levels of food insecurity https://twitter.com/unrwa/status/1765419726748971422
+
+
+- "In a period of just 5 months, more children, more journalists, more medical personnel & more 
+@UN staff have been killed than anywhere in the world during a conflict" @UNLazzarini tells @UN General Assembly: the death toll in📍#Gaza is staggering, more than 30,000 people killed. https://x.com/UNRWA/status/1764753659001192792?s=20
+
 - Incredible reporting from @clarissaward, showing the reality inside of Gaza. Worth a watch if you get a moment. There are also journalists inside Gaza that have been continuously reporting on what’s happening there, many have died in the process.  https://x.com/OmarJimenez/status/1735300676635271366?s=20
 
 - A forigen docotr (European or American) served at Al-shifa hospital talking about that there was no tunnel in the hospital. He said "they was bombing hospitals, ambulances, and our stuff since the first time i worked in Gaza in 2006" https://x.com/DerbyChrisW/status/1724453812079890610?s=20
@@ -404,7 +412,7 @@ End the killing of children. https://x.com/UNICEF/status/1765838182505980307?s=2
 
 - At least ten children have reportedly died because of dehydration and malnutrition in Kamal Adwan Hospital in the Northern Gaza Strip in recent days. https://x.com/UNICEF/status/1764296731380920490?s=20
 
-- 
+- ( Mar 4, 2024) Yesterday, a @UN mission in #Gaza delivered fuel and vital medical supplies to Al Awda and Kamal Adwan hospitals. This was the first convoy to reach them since early October 2023, despite humanitarians’ ongoing efforts to gain regular access to the north. https://x.com/UNOCHA/status/1764724993794203746?s=20
 
 - "There is absolutely no safe place in Rafah anymore... They are asked to move - the question is, where to move?"
 @UNLazzarini
@@ -520,3 +528,43 @@ Some IDF Tiktoks
 - shitting in a bathrom and took his shit outside https://x.com/jamesdgreig/status/1730631587610423589?s=20
 
 - Israeli soldiers vandalize a gift shop in #Gaza after destroying the area and killing or expelling residents. https://x.com/MalakaShwaikh/status/1733262704540811504?s=20
+
+Israel Lying tweets 
+- 
+
+- Saying that millions of people supported Israel in the street, found a lie : https://x.com/EekadFacts/status/1762836952099762661?s=20
+
+- 
+- Mike Pompeo tweets:
+  - No ceasefire. Destroy Hamas.
+  - The Judea and Samaria Area (referring to West bank) are jewish land 
+
+- The story of the child Hind, from her uncle https://x.com/EekadFacts/status/1759636199893774444?s=20
+
+- Israel governer posts a propaganda then deletes the post here https://x.com/EekadFacts/status/1759555987264995715?s=20
+
+- https://x.com/EekadFacts/status/1757764459974533520?s=20
+
+- @EdyCohen spreading a propaganda (https://x.com/EekadFacts/status/1723415439617724437?s=20)
+
+- The Israeli Prime Minister's  spokesperson to the Arab world spread propaganda with fake news https://x.com/EekadFacts/status/1723681419803623720?s=20
+
+- propagand : Ofir Gendelman, Arab media spokesperson for the Israeli Prime Minister's Office, tweeted a video claiming to show Israeli special forces targeting Hamas members in a Gaza tunnel. https://x.com/EekadFacts/status/1723718372347486543?s=20
+
+- propaganda of a fake nurse claiming that Hamas steals the medicine https://x.com/EekadFacts/status/1724075966090162330?s=20
+
+- propaganda Ground openings or hidden tunnels? Eekad scrutinizes Israel's claims about Hamad Hospital in Gaza, suggesting a more mundane reality. Join us as we uncover the facts.
+https://x.com/EekadFacts/status/1723657265813635426?s=20
+
+- propaganda edy cohin Israeli journalist Edy Cohen shared a video showing people crushing food parcels underfoot. claiming it's in Palestine https://x.com/EekadFacts/status/1723391043209466311?s=20
+
+- propaganda  Contrary to Israel Arabic's claims, our investigation confirms the authenticity of a Palestinian nurse's resuscitation efforts, debunking allegations of staged medical practices. Dive into the details in our video report. https://x.com/EekadFacts/status/1721124698925187130?s=20
+
+- propaganda Eekad's team pierces through the '#Pallywood' hashtag frenzy, revealing a pattern of intentional distortion by pro-Israeli accounts. https://x.com/EekadFacts/status/1720818643045330955?s=20
+
+- propaganda sraeli journalist @EdyCohen recently shared a video that claimed to show ”fake corpses” moving inside burial shrouds, alleging that it was a staged performance by Hamas. https://x.com/EekadFacts/status/1718653130177409334?s=20
+
+Important 
+- 
+- Telegram zionist group making fun of dead bodies of Palestinians https://x.com/EekadFacts/status/1715809051785781266?s=20
+
