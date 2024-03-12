@@ -1,6 +1,8 @@
 <h> Actions : 
+- 
 
-1 - (B-roll: TITLE: GENOCIDE AGAINST CHILDREN IN GAZA.[Include footage of all attacks on Gaza children beginning on the 7th.] 
+(B-roll: TITLE: GENOCIDE AGAINST CHILDREN IN GAZA.[Include footage of all attacks on Gaza children beginning on the 7th.] 
+- 
 
 
 - Mother crying with her children dead bodies, "My heart light, those green eyes, the boy is always tiring me" (https://t.me/QudsN/377652) "The life is gone, all of them are gone, All the time i call him, Did you go Abu-alward (Father of flowers) [speaking with her child], Did you go susa [talking to her baby girl]?"(https://t.me/QudsN/377562)
@@ -16,6 +18,8 @@
 - A kid lost all of his family and he remaind alone, (https://t.me/QudsN/377103),<br>That's an attempt to make him feel better https://t.me/QudsN/377613
 
 - A kid saying goodbye to his brother's dead body "I will sleep next to you bro, habibi habibi brother" https://t.me/QudsN/377608 
+
+- Taking many https://x.com/Lowkey0nline/status/1767301859088482363?s=20
 
 - The kid Omar, the only survivor of his family. https://t.me/QudsN/377579
 
@@ -328,15 +332,25 @@ B-roll: Include any and all footage of the IDF wreaking havoc on Gaza and its pe
 - First resource i can suggest is this channel : https://www.youtube.com/@btselem <br>
 Go in, watch any video, and that's your resource
 
+- EX. IDF solider says how to be an IDF solider https://x.com/Danah_Q9/status/1720136093880762856?s=20
+
 - The IOF have arrested 22 year-old Palestinian activist Ahed Tamimi for "inciting terrorism",during overnight raids in the occupied West Bank. In this video filmed last year Ahed speaks to 
 @DenaTakruri about what life is like under occupation and being targeted by Israelis. -AJ+ https://x.com/randA33333/status/1721991218303737893?s=20
 
+- More murders and crimes committed by the terrorist Israeli settlers backed by the IOF, of course the settlers always get away with their crimes because the law doesn’t stop them and the weapons are distributed to them by their terrorist Israeli government https://x.com/randA33333/status/1721667708222115871?s=20
+
+- #BeforeOct7 - 2nd June 2023: Nabi Saleh, West Bank. Two year old, Mohammed Al-Tamimi was shot in the head by the Israeli occupation forces, being "mistaken" for a gunman. https://x.com/Mazaljj/status/1729411247001809159?s=20
 
 - Palestinian journalist Hana Hammad continues work after being injured by Israeli forces in Jerusalem https://x.com/sembayu0/status/1721278082911281526?s=20
 
 
 - 11 year-old girl hit in the face with a stun grenade by an israhelli police + violent beating for other girl, resulting in broken jaw and wounds for the 11YO. The muslims were celebrating a holiday that day. BEFORE OCTOBER 7TH https://x.com/antizionist653/status/1722745411025215843?s=20
 
+- Imagine just how helpless and humiliated you'd feel to be a Palestinian father watching armed enemy Israeli soldiers abduct your children and take them off to god knows where to be beaten, tortured, sexually assaulted and detained for months or years? https://x.com/livingmrtyr/status/1719896703170486676?s=20
+
+- Female students are being searched -or rather harassed- in Jerusalem by occupation forces https://x.com/rihamrifai/status/1722275651238126003?s=20
+
+- Arresting a really elder mother https://x.com/lhhvdd/status/1725145779940024341?s=20
 
 B-roll: Include any evidence to support the fact that Gazan leaders have been imprisoned, maimed, or killed.
 -
@@ -346,8 +360,16 @@ B-roll: Include footage to support the claim that Gaza has in fact been besieged
 -
 
 
-B-roll: Include footage of some of the worst atrocities that have been committed by Israel here.
+B-roll: Include footage of some of the worst atrocities that have been committed by Israel here. (Worst crimes than Nazis here, for real)
 -
+
+- Origin stealing : All the details are here https://x.com/louay_fawzy/status/1724262851026600159?s=20  https://www.theguardian.com/world/2009/dec/21/israeli-pathologists-harvested-organs https://www.euronews.com/2023/11/27/israel-stealing-organs-from-bodies-in-gaza-alleges-human-right-group
+
+- 2nd Biggest skin bank in the world https://medium.com/@ASll0_/debunking-the-worlds-largest-skin-bank-how-israelis-harvest-organs-without-consent-d8415b266a55
+
+- *Really Important:* Mahmoud Sersek. Mahmoud didn't have anything other than football, because they didn't get other toys like other kids in any place in the world (No airport or seaport in Gaza, everything enter through the occupation). So Mahmoud's only way to have fun was football. untill he became 8 years old, and his skill was really good. He was very good that he played with his national team at 14 years old. His only wish was playing in the west bank so he can actually complete a football league, because in Gaza there was a war every year, no peacefull life. in 2009, he got a deal in the west bank to play in a team there. He first needed a permission from the occupation to play in the West Bank, and they approved. he went there by a taxi with 4 of his football collegues. IDF soliders arrested him in a chickpoint, and called his brother, told him that they've arrested Mahmoud. They've arrested him to admit that he is connected with Hamas, they've turtored him for full 3 years (description in link) to admit that he was connected with Hamas. He though that they will leave him play football peacfully, you took the land, let me play in peace. He said that the occupation trigger and shot the Palestinians football players in their feet to stop them of playing. in Mar 2014 IDF occupation shot Gouhar nasser and adam abdu-elraaof in their feet. at Mar 2009 IDF triggered 3 players homes with rockets, Ayman Alkurd, shady sbaghi, wageeh moushtaha and zakarya eesa "I will continue writing soon".
+
+- *Really Important:* Olymbic hero Hossam Azzam, and his children.  https://www.thenationalnews.com/sport/olympics/2021/09/02/tokyo-paralympics-husam-azzam-hopes-to-become-inspiration-for-palestinians/
 
 
 
@@ -457,6 +479,8 @@ random
 - A Palestinian father is forced to carry his son himself into Jenin Government Hospital because the Israeli occupation army is blocking the movement of ambulances during the ongoing Israeli invasion of the city. https://x.com/QudsNen/status/1734517483220992370?s=20
 
 - Once a man arrived the hospital with his children's dead bodies https://x.com/S_Aljafarawi/status/1733901140922646717?s=20
+
+- Attacking  casket of Journalist Shireen Abu Akleh. https://x.com/Kahlissee/status/1767191403291938973?s=20
 
 - 16 of our brave soldiers pursued a little girl... https://x.com/IsraelDefenseF/status/1733442366759956825?s=20
 
