@@ -464,6 +464,12 @@ Cease fire + lifting the siege to allow meaningful lifesaving aid + commercial s
 
 - Reports that at least 6 more children have died of dehydration & malnutrition in northern #Gaza are horrendous. Unimpeded access across the #GazaStrip is needed NOW. An immediate ceasefire continues to be a matter of life & death. https://x.com/UNRWA/status/1763110510289989962?s=20
 
+
+Sugested B-roll : Targetting Palestinian Athletes
+-
+
+
+
 random 
 - 
 
@@ -604,3 +610,5 @@ Important
 - 
 - Telegram zionist group making fun of dead bodies of Palestinians https://x.com/EekadFacts/status/1715809051785781266?s=20
 
+
+- Hitting a child for no reason and humulating him in West Bank in front of his younger brother https://x.com/NewpressPs/status/1771997809245393227?s=20
